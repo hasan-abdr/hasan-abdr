@@ -30,7 +30,7 @@ My main interests include:
 
 ## 📬 Let’s Connect!  
 - **GitHub**: [github.com/HASAN300809](https://github.com/HASAN300809)  
-- **LinkedIn**: [linkedin.com/in/hasan-abdurrahman](https://www.linkedin.com/in/hasan-abdurrahman-/)  
+- **LinkedIn**: [linkedin.com/in/hasan-abdurrahman](https://www.linkedin.com/in/hasan-abdurrahman-8519b4404/)  
 - **Email**: hasanabdurrahman0809@gmail.com  
 
 Let’s collaborate and build something impactful! 🌟  
